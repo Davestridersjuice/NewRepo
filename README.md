@@ -2,6 +2,8 @@
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/ec5b825e-08f5-4fa7-9624-9a96d34b4234" /> </br>
 
+<sub>${\textsf{\color{#FF69B4} ˚ʚ Generfluid, --> minor <--, Pansexual ɞ˚}}$ </br>
+
 ${\textsf{\color{#FF69B4}@Xielian-3000 𝚒𝚜 𝚖𝚢 𝚜𝚙𝚊𝚖 𝚏𝚘𝚕𝚕𝚘𝚠 𝚊𝚌𝚌!}}$ <br>
 
 ${\textsf{\color{#FF69B4} Discord - Davestridersjuice}}$ <br>
