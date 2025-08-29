@@ -1,6 +1,11 @@
+<div align="center">
+
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/ec5b825e-08f5-4fa7-9624-9a96d34b4234" />
 
+${\textsf{\color{#FF69B4}@Xielian-3000 𝚒𝚜 𝚖𝚢 𝚜𝚙𝚊𝚖 𝚏𝚘𝚕𝚕𝚘𝚠 𝚊𝚌𝚌!}}$ <br>
+
+${\textsf{\color{#FF69B4} Discord - Davestridersjuice}}$ <br>
 
 
-<img width="802" height="891" alt="image" src="https://github.com/user-attachments/assets/2493e306-3c26-4506-8283-1f06b56e375c" />
 
+<img width="1280" height="202" alt="image" src="https://github.com/user-attachments/assets/3f65601c-484e-422e-aead-6f790fba1c1c" />
