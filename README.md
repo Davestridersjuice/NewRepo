@@ -5,7 +5,7 @@
 
 ![Divider](https://i.ibb.co/Gf7WKqWQ/tumblr-84b94c1946a55d2f79347adb4dd67b2a-6215da66-500.webp)
 
-<sub>${\textsf{\color{#FF69B4} ˚ʚ Generfluid, --> minor <--, Pansexual ɞ˚}}$ </br>
+<sub>${\textsf{\color{#FFB6C1} ˚ʚ Generfluid, --> minor <--, Pansexual ɞ˚}}$ </br>
 
 <img width="284" height="26" alt="image" src="https://github.com/user-attachments/assets/48df6650-fc20-4438-bb67-6731da706c78" />
 
@@ -15,7 +15,7 @@ ${\textsf{\color{#FF69B4} Discord - Davestridersjuice}}$ <br>
 
 <img width="284" height="26" alt="image" src="https://github.com/user-attachments/assets/48df6650-fc20-4438-bb67-6731da706c78" />
 
-${\textsf{\color{#FF69B4} ♡More Socials♡}}$ </br>
+${\textsf{\color{#FFB6C1} ♡More Socials♡}}$ </br>
 ![The stars](https://i.ibb.co/VYxqTPM2/tumblr-5b53e0c83821a4df1e2c6a578ceb96ab-0208ddb1-75.webp) 
 [Ata](https://chickenbootyweezer.atabook.org/)
 [Pinterest](https://www.pinterest.com/Davestridersjuice/)
@@ -24,7 +24,7 @@ ${\textsf{\color{#FF69B4} ♡More Socials♡}}$ </br>
 
 ![Madokamii](https://i.ibb.co/svcZ8PJ1/tumblr-79b8f21b02e5a2988315da1d55e1f9e7-8e63f14c-100.png)
 
-<sub>${\textsf{\color{#FF69B4} Have a nice day.˚ʚ♡ɞ˚}}$ </br>
+<sub>${\textsf{\color{#FFB6C1} Have a nice day.˚ʚ♡ɞ˚}}$ </br>
 
 ![Divider](https://i.ibb.co/Gf7WKqWQ/tumblr-84b94c1946a55d2f79347adb4dd67b2a-6215da66-500.webp) </br>
 
