@@ -1,7 +1,7 @@
 <div align="center">
   
 <img width="1080" height="48" alt="image" src="https://github.com/user-attachments/assets/0553ee32-9810-4ea1-bf88-f05c7e1e38f2" />
-<img width="2048" height="826" alt="image" src="https://github.com/user-attachments/assets/55dac35f-c935-4678-8c2b-9f660be0c3ae" /></br>
+<img width="2048" height="826" alt="image" src="https://github.com/user-attachments/assets/137ad747-da2b-4a32-bfc3-9ae6512d5293" /></br>
 
 ![Divider](https://i.ibb.co/Gf7WKqWQ/tumblr-84b94c1946a55d2f79347adb4dd67b2a-6215da66-500.webp)
 
