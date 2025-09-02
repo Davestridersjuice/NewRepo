@@ -9,6 +9,8 @@
 
 <img width="284" height="26" alt="image" src="https://github.com/user-attachments/assets/48df6650-fc20-4438-bb67-6731da706c78" />
 
+![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&color=ff69b4)
+
 ${\textsf{\color{#FF69B4}@Xielian-3000 𝚒𝚜 𝚖𝚢 𝚜𝚙𝚊𝚖 𝚏𝚘𝚕𝚕𝚘𝚠 𝚊𝚌𝚌!}}$ <br>
 
 ${\textsf{\color{#FF69B4} Discord - Davestridersjuice}}$ <br>
